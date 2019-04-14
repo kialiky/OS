@@ -1,2 +1,3 @@
 # OS
-Summary of Operating System Learning
+lue lue lue
+Passing pictures is too annoying
