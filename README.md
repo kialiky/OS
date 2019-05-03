@@ -1,3 +1,3 @@
 # OS
 lue lue lue
-Passing pictures is too annoying
+操作系统的乱七八糟整理
